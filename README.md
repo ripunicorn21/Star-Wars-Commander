@@ -214,4 +214,4 @@ Star Wars: Commander is offered as a full free version, providing players with a
 Ready to lead your forces in the epic battles of the Star Wars universe? **Download Star Wars: Commander now and embark on your galactic adventure!**
 
 ---
-**Last updated:** 2026-10-09 23:46:07 UTC
+**Last updated:** 2026-10-10 03:32:54 UTC
